@@ -1,0 +1,1 @@
+Mini tutoras: https://shorthaired-hook-104.notion.site/KAFKA-Mensageria-e-stream-de-dados-228e3575f5fd413d9c9bf7dcd3250ad5?pvs=4
